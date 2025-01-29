@@ -7,7 +7,7 @@ voce precisa entrar meu grupo pra editar meu jogo, eu vou te classificar voce de
 Ola, meu nome é johan bender santos (tambem conchecido como swarajino que voce viu meu descrição)
 voce vai entrar o meu grupo chamado "W E D I Z" e voce precisa esperar até que vou te classificar voce como desenvolvedor.
 
-link para o experience/jogo: https://www.roblox.com/games/76460126098680/Altufor-t-demo[enter link description here](file:///C:/Users/User/Downloads/Welcome%20file.html)
+[link para o experience/jogo](https://www.roblox.com/games/76460126098680/Altufor-t-demo)
 
 
 # O que nos fazemos
