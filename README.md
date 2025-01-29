@@ -29,8 +29,8 @@ gerando muitos inimigos
 uma historia clichê, longo, chato e escrita ruim.
 
 # O que eu vou fazer
-um modelos para personagems
-musicas
-mapa de design
-animação
+um modelos para personagens,
+musicas,
+mapa de design,
+animação e
 historia
