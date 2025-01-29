@@ -28,7 +28,7 @@ aberração cromática
 gerando muitos inimigos
 uma historia clichê, longo, chato e escrita ruim.
 
-# O que nos EU fazer
+# O que eu vou fazer
 um modelos para personagems
 musicas
 mapa de design
